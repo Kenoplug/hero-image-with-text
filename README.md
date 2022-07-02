@@ -18,3 +18,24 @@
 
 4. Next we will reduce the font size of h1 for small displays.
 ![IMG_20220702_185626](https://user-images.githubusercontent.com/73746692/177011648-f8d3b2d8-2862-4395-bf72-f74eb66df175.jpg)
+
+Credit: @tejinder_id
+
+👇🏼YouTube video👇🏼
+
+
+Subscribe
+
+https://youtube.com/channel/UCVDGEmd7A2xLeMtKDtXohaQ
+
+Buy me a coffee
+
+https://www.buymeacoffee.com/Kenoplug
+
+GitHub
+
+https://github.com/Kenoplug
+
+Twitter
+
+https://twitter.com/KENOPLUG?t=u1rg8CJFOtDLVgZmYMuImQ&s=09
